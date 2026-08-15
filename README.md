@@ -1,0 +1,1 @@
+# infranova_tech_logo
